@@ -1,0 +1,2 @@
+# general
+other than work
